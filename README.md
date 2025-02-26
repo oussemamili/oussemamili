@@ -56,7 +56,7 @@ Here are a few of the projects I've worked on:
 Feel free to reach out for collaborations or discussions!  
 
 - **LinkedIn**: [Oussema Mili](https://www.linkedin.com/in/oussema-mili-848a53251/)  
-- **Email**: [Oussema.mili@enetcom.u-sfax.tn](mailto:Oussema.mili@enetcom.u-sfax.tn)  
+- **Email**: [Oussemamili02@gmail.com](mailto:Oussemamili02@gmail.com)  
 - **Phone**: [+216 95719421](tel:+21695719421)  
  
 
